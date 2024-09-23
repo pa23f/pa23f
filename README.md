@@ -1,4 +1,4 @@
-![f](https://static.wikia.nocookie.net/hellokitty/images/2/22/Sanrio_Characters_Kirimichan_Image006.png/revision/latest/scale-to-width-down/250?cb=20170403185459) rentry wip
+![f](https://static.wikia.nocookie.net/hellokitty/images/2/22/Sanrio_Characters_Kirimichan_Image006.png/revision/latest/scale-to-width-down/250?cb=20170403185459) rentry wip Nayw, Kyo, Ren <= my loves♡
 <!--
 **chihiE5/chihiE5** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
