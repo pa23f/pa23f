@@ -1,4 +1,3 @@
-i like chicken and hsr aaaaaaaand zzz
-myphai phaidei pls^^
+i like chicken and  phadei(or MYPHAI!!!!!!!!!!!!!!)^^ + zzz
 
 
